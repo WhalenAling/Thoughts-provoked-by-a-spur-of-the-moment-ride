@@ -19,50 +19,50 @@
 
 ![](images/1.jpg)
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\2.jpg)
+![](images/2.jpg)
 
 `出发前一天，吃点好的`
 
 
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\3.jpg)
+![](images/3.jpg)
 
 `第一天，还在无锡，路过机场前，先路过这家梦想中想去的公司`
 
 
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\4.jpg)
+![](images/4.jpg)
 
 `大约是下午三点左右，由于不是直接抵达太湖，而是先到苏州，见到了苏州的太湖旁`
 
 
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\5.jpg)
+![](images/5.jpg)
 
 `在苏州的脚步很快，这里人很多，商业化严重，尴尬的地方是晚上找不到很有性价比的住宿，一晚上花了两百，第二天赶紧逃离这个略显失望的地方`
 
 
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\6.jpg)
+![](images/6.jpg)
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\7.jpg)
+![](images/7.jpg)
 
 `这里是湖州，还没到主城区，但是这里露营的人特别多，湖岸线挤满了帐篷。也是在这里遇到了飙摩托的人出车祸，跟一辆箱型小货撞上了，不一会儿就来了一辆救护车`
 
 
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\8.jpg)
+![](images/8.jpg)
 
 `刚过湖州主城区，一回头还能看到，突然想到一路过来都没什么照片，赶紧拍个照，顺便说一句，这一段的湖边，水很臭`
 
 
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\10.jpg)
+![](images/10.jpg)
 
 `到宜兴了，这段路真烂，还爆胎了，国道还建有收费站，差点以为上高速了。(槽点真多)  回想起路过苏州的时候，上了一段高架桥的1/5，发现不对劲，立马退了下来`
 
 
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\11.jpg)
+![](images/11.jpg)
 
 `完成！`
