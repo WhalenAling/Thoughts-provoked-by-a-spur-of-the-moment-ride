@@ -17,7 +17,7 @@
 ***
 以下是这段经历中的一些照片：
 
-![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\1.jpg)
+![](images/1.jpg)
 
 ![](C:\temp\git\Thoughts-provoked-by-a-spur-of-the-moment-ride\images\2.jpg)
 
